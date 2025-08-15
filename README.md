@@ -14,7 +14,7 @@ Recognized for delivering compliance excellence, strengthening security posture,
 ---
 
 ## 📄 Resume
-📥 **[Download My Resume (PDF)](./Arava_Anantha_Rao_Resume.pdf)**  
+📥 **[Download My Resume (PDF)](.https://github.com/a-anantha-rao/Resume-Certifications/blob/main/AnanthRao-Resume.pdf)**  
 
 ---
 
